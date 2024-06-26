@@ -1,16 +1,16 @@
-## Hi there 👋
+boas vindas ao meu repositorio@
 
-<!--
-**lennonns12/lennonns12** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome é thales
+sou de sao jose do rio preto
+tenho 17 anos
+gosto de esportes
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+sou trap
+sou ecletico
+sou fa do cristiano ronaldo
+hala madrid
+dale dale dale mengo,pra cima deles flamengo.
+em dezembro de 81 ficou marcado na historia
+3 a 0 no liverpol,botamos os ingles na roda,
+e no rio nao tem ninguem igual,so o flamengo é campeao mundial.
+dale dale dale mengo,pra cima deles flamengo.
